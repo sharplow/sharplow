@@ -1,5 +1,5 @@
 og wemmbu nd og sharpness fan owo
-![](https://files.catbox.moe/t9vx8e.png)![]https://files.catbox.moe/evj8nf.png)
+![](https://files.catbox.moe/t9vx8e.png)![](https://files.catbox.moe/evj8nf.png)
 
 [**wsg follow my twt since i only post abt sharpy**](https://x.com/xalicos)
 
