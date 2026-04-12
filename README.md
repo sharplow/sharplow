@@ -1,3 +1,7 @@
+why are we colorpicking the gifted skin my friend gave me?🤔
+![](https://file.garden/aQGrUXVQel9xbBYT/IMG_8454.jpeg)
+
+
 og wemmbu nd og sharpness fan owo
 ![](https://files.catbox.moe/t9vx8e.png)![](https://files.catbox.moe/evj8nf.png)
 
