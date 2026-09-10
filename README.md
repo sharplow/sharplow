@@ -1,4 +1,4 @@
-This gh is outdated i don’t care about sharplow yall fans r weird asl i fucking hate judelow ok also sry for the outdated atabook it’s /flowery npw
+This gh is outdated i don’t care about sharplow yall fans r weird asl i fucking hate judelow Im only using this cuz i wanna flex lol ok also sry for the outdated atabook it’s /flowery npw
 
 
 why are we colorpicking the gifted skin my friend gave me?🤔
