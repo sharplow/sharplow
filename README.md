@@ -1,3 +1,6 @@
+This gh is outdated i don’t care about sharplow yall fans r weird asl i fucking hate judelow ok also sry for the outdated atabook it’s /flowery npw
+
+
 why are we colorpicking the gifted skin my friend gave me?🤔
 ![](https://file.garden/aQGrUXVQel9xbBYT/IMG_8454.jpeg)
 
